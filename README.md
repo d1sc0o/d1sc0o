@@ -61,6 +61,8 @@ All art, including pfp, is by May! on yt :>
 All dividers + frames are free2use, found on pinterest!
 
 Blinkie text by me, template free2use from blinkies.cafe (check out the site!!)
+
+To get badges on your repository, use shield.io, go to the static badges section, and go from there!
 </details>
 <img width="3464" height="463" alt="eiuf7p" src="https://github.com/user-attachments/assets/de46e3ac-30cf-4a12-b741-b72aafb6d95a" /> </div>
 
