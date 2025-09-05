@@ -2,6 +2,7 @@
 <div align="center">
 <img width="800" height="510" alt="06184773-bdfd-403d-9a94-17dec5ca15c6" src="https://github.com/user-attachments/assets/7a1655d8-e1f7-4586-a042-8af2f223c26a" />
 
+![anki](https://img.shields.io/badge/welcome_to-happyville!-pink.svg?style=plastic&logo=gleam)
  ꒱ t̲e̲ppy / disc̲o̲   ⸝ ⸝    they 𓏵 them   ⋮   agender !
 
   , ⋆︶        minor    —    artist   ／➶／   sign ata ♪ cud + cover comf ^_^
@@ -71,3 +72,5 @@ Blinkie text by me, template free2use from blinkies.cafe (check out the site!!)
 ![blinkiesCafe-Q8](https://github.com/user-attachments/assets/d28f6da9-e01f-4447-bb61-efadda035afd)
 
 </div>
+
+<img width="1044" height="91" alt="pkbtpa" src="https://github.com/user-attachments/assets/1850e560-4a87-4ac0-b936-14fd820b718b" />
