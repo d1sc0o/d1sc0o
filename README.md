@@ -17,8 +17,10 @@ I'm usually sitting below the bakery, in the top left corner of spawn, or in the
 <details>
 <summary>boundaries !!</summary>
 if you are 18+ please do not make sexual jokes around me! If you are -16, then go ahead idrc, and if you're -11, just..no :( 
-I don't care if you're a proshipper just please don't talk about your ships or ANY ships unless I say you can. Same with spawnism.
-I can block / unfriend freely and without explanation.
+I don't care if you're a proshipper just please don't talk about your ships around me... Same with spawnism.
+I can block / unfriend freely and without explanation. also, RP DNI!!!
+ ~~~
+ while on the topic of ships, i'm fine talking about berryfunny or maybe moonberry, and most unproblematic ships... except fruitcake. not a fan! just nothing nsfw-ship related, thanks!
 </details>
 
 <details>
@@ -33,14 +35,13 @@ https://ch4nc3.atabook.org/
 <details>
 <summary>kins !!</summary>
 
+- ***Looey***
+
 - ***Teppy***
 
 - ***Sprout***
 
-
 - **Bassie**
-
-- **Looey**
 
 - **Chance**
 
