@@ -62,7 +62,9 @@ https://ch4nc3.atabook.org/
 
 <details>
 <summary>creds !!</summary>
-All art, including pfp, is by May! on yt :>
+All art, excluding pfp, is by May! on yt :>
+
+pfp by cirkuszo on twitter/X
 
 All dividers + frames are free2use, found on pinterest!
 
