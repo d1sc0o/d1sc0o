@@ -3,7 +3,7 @@
 <img width="800" height="510" alt="06184773-bdfd-403d-9a94-17dec5ca15c6" src="https://github.com/user-attachments/assets/7a1655d8-e1f7-4586-a042-8af2f223c26a" />
 
 ![anki](https://img.shields.io/badge/welcome_to-happyville!-pink.svg?style=plastic&logo=gleam)
- ꒱ t̲e̲ppy / z͟    ⸝ ⸝    they 𓏵 them   ⋮   agender !
+ ꒱ t̲e̲ppy / z͟  ,, [kin name/pony cos name is fine!]  ⸝ ⸝    they 𓏵 them   ⋮   agender !
 
   , ⋆︶        minor    —    artist   ／➶／   sign ata ♪ cud + cover comf ^_^
 <img width="3464" height="463" alt="eiuf7p" src="https://github.com/user-attachments/assets/de46e3ac-30cf-4a12-b741-b72aafb6d95a" />
@@ -35,15 +35,20 @@ https://ch4nc3.atabook.org/
 
 - ***Teppy***
 
-- **Chance**
+- ***Sprout***
 
-- **Elliot**
+
+- **Bassie**
 
 - **Looey**
+
+- **Chance**
 
 - *Soren/Skittles*
 
 - *74j*
+
+- *Elliot*
 
 - *Shelly*
 
