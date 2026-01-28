@@ -5,13 +5,14 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2BFED3&center=true&width=435&lines=%E3%82%9BA+squishy+bee+%2C%2C+%E3%82%9B;%E3%82%9Bwho's+as+sweet+as+sugar+!+%E3%82%9B)](https://git.io/typing-svg)
 
-![Gummy_Bee](https://github.com/user-attachments/assets/cd8bc3da-1d46-43cd-a9b5-0ab25f5c5672)
-
+![Gummy_Bee](https://github.com/user-attachments/assets/f5821e02-5c53-4af4-9892-fc8945a0cacb)
 
 
 $${\color{#e6bff5} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
 
 
+
+![Static Badge](https://img.shields.io/badge/bee-bee?logo=gleam&logoColor=%23e6bff5&label=gummy&labelColor=grey&color=%232bfed3)
 
 
 $${\color{#c68ce4} ʚ𖦹ɞ \space loon \space ! \space ⋆⑅˚₊}$$
