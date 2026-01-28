@@ -1,24 +1,28 @@
 <div align=center>
 
 
-# $${\color{#c68ce4} s }$$
+# $${\color{#c68ce4} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ }$$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2BFED3&center=true&width=435&lines=%E3%82%9BA+squishy+bee+%2C%2C+%E3%82%9B;%E3%82%9Bwho's+as+sweet+as+sugar+!+%E3%82%9B)](https://git.io/typing-svg)
 
-$${\color{#e6bff5} s}$$
+![Gummy_Bee](https://github.com/user-attachments/assets/cd8bc3da-1d46-43cd-a9b5-0ab25f5c5672)
+
+
+
+$${\color{#e6bff5} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
 
 
 
 
-$${\color{#c68ce4} s \space loon \space ! \space s}$$
+$${\color{#c68ce4} ʚ𖦹ɞ \space loon \space ! \space ⋆⑅˚₊}$$
 
-$${\color{#a197d8} s \space They \space / \space Them \space :: \space He \space / \space She \space ִs}$$
+$${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \space / \space She \space ִᰔᩚ}$$
 
 
 
 
 <details>
-<summary> $${\color{#a0fdee} s \space about \space me \space !}$$ </summary>
+<summary> $${\color{#a0fdee} 𝜗ৎ \space about \space me \space !}$$ </summary>
 
 
 
@@ -39,7 +43,7 @@ $${\color{#a197d8} s \space They \space / \space Them \space :: \space He \space
 </details>
 
 <details>
-<summary> $${\color{#2bfed3} s \space dni \space !}$$ </summary>
+<summary> $${\color{#2bfed3} ➜ \space dni \space !}$$ </summary>
 
 
 ₊˚ ┊ pro + dark shippers
@@ -56,7 +60,7 @@ $${\color{#a197d8} s \space They \space / \space Them \space :: \space He \space
 </details>
 
 <details>
-<summary> $${\color{#26ffa0} s \space extras \space !}$$ </summary>
+<summary> $${\color{#26ffa0} ✮ \space extras \space !}$$ </summary>
 
 
 
@@ -72,7 +76,7 @@ $${\color{#f8c6db} matching \space with \space my \space awesome \space amazing 
 
 </details>
 
-$${\color{#e6bff5} s}$$
+$${\color{#e6bff5} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
 
 
   
