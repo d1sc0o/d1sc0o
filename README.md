@@ -14,6 +14,9 @@ $${\color{#e6bff5} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
 
 ![Static Badge](https://img.shields.io/badge/bee-bee?logo=gleam&logoColor=%23e6bff5&label=gummy&labelColor=grey&color=%232bfed3)
 
+![tumblr_daf2542631da3f63e976ac914905dbfe_46af597d_75](https://github.com/user-attachments/assets/b8088479-98e5-483d-a664-ee27b754d54d)
+
+
 
 $${\color{#c68ce4} ʚ𖦹ɞ \space loon \space ! \space ⋆⑅˚₊}$$
 
@@ -26,19 +29,19 @@ $${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \
 <summary> $${\color{#a0fdee} 𝜗ৎ \space about \space me \space !}$$ </summary>
 
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ fictionkin ,, big looey kin
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ 4teen
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ multishipper !!
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ almost always sittin with my trio 
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ i am not diagnosed w/ anything but there is something wrong with me. i am not able to get diagnosed due to my family.
 
 </details>
@@ -46,16 +49,16 @@ $${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \
 <details>
 <summary> $${\color{#2bfed3} ➜ \space dni \space !}$$ </summary>
 
-
+![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/5911eefb-43d9-4cb0-b880-f86d5a755440)
 ₊˚ ┊ pro + dark shippers
 
-
+![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/5911eefb-43d9-4cb0-b880-f86d5a755440)
 ₊˚ ┊ -11 and 17+ dniuid / friends
 
-
+![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/5911eefb-43d9-4cb0-b880-f86d5a755440)
 ₊˚ ┊ roleplay
 
-
+![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/5911eefb-43d9-4cb0-b880-f86d5a755440)
 ₊˚ ┊ religion forcers
 
 </details>
@@ -64,13 +67,13 @@ $${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \
 <summary> $${\color{#26ffa0} ✮ \space extras \space !}$$ </summary>
 
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ my favorite color is yellow !
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ i enjoy art in general , mostly traditional + digital <<< update i quit art ^^"
 
-
+![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ i loooove dandys world , bss , ^_^ , psychological + normal horror on rblx ! i also like slime rancher + pjsk (+more)
 
 $${\color{#f8c6db} matching \space with \space my \space awesome \space amazing \space trio \space ,, \space love \space you \space guys \space !!}$$
