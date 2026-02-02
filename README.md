@@ -1,5 +1,6 @@
 <div align=center>
 
+<img width="1800" height="720" alt="Untitled41_20260202171446" src="https://github.com/user-attachments/assets/10a8a565-20ee-4839-9489-41a3f24685f7" />
 
 # $${\color{#c68ce4} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ }$$
 
@@ -22,6 +23,8 @@ $${\color{#c68ce4} ʚ𖦹ɞ \space loon \space ! \space ⋆⑅˚₊}$$
 
 $${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \space / \space She \space ִᰔᩚ}$$
 
+
+<img width="900" height="380" alt="2026_02_02_0sy_Kleki" src="https://github.com/user-attachments/assets/6caf6c89-78d2-4b01-856f-7c5686d3f616" />
 
 
 
