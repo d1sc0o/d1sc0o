@@ -33,7 +33,7 @@ $${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \
 
 
 ![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
-₊˚ ┊ fictionkin ,, big looey kin
+₊˚ ┊ fictionkin ,, big looey kin : doubles dni / dniuid
 
 ![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ 4teen
@@ -85,7 +85,7 @@ $${\color{#f8c6db} matching \space with \space my \space awesome \space amazing 
 
 $${\color{#e6bff5} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}$$
 
-
+statement was so good even gummy bee gave him free glue 😂
   
 </div>
 
