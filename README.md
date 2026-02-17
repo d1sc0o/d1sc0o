@@ -74,7 +74,7 @@ $${\color{#a197d8} ༘⋆ \space They \space / \space Them \space :: \space He \
 ₊˚ ┊ my favorite color is yellow !
 
 ![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
-₊˚ ┊ i enjoy art in general , mostly traditional + digital <<< update i quit art ^^"
+₊˚ ┊ i enjoy art in general , mostly traditional + digital
 
 ![tumblr_59a4a92af67289b12f7dbd283e04fa5d_34a21347_75](https://github.com/user-attachments/assets/0e3d8bb8-e7aa-4aec-a585-82230902de9c)
 ₊˚ ┊ i loooove dandys world , bss , ^_^ , psychological + normal horror on rblx ! i also like slime rancher + pjsk (+more)
