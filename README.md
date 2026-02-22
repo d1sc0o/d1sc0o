@@ -98,7 +98,6 @@ $${\color{#ae84c4} ₊˚ ┊ \space roleplay.}$$ </p>
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Condensed&pause=1000&color=D1DCF4&center=true&width=450&height=60&lines=gon+%2C+you+are+light;sometimes+%2C+you+shine+so+bright;even+I+must+look+away+.)](https://git.io/typing-svg)
 
 # $${\color{#b5bde7} ʚ・ ୨୧・ ɞ}$$
-$${\color{#ad6faa} platonic \space killugon \space <3}$$
 
 </div>
 
