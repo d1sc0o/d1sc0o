@@ -1,9 +1,12 @@
 <div align=center> 
 
-  
-# $${\color{#ad98c9} sym}$$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Condensed&pause=1000&color=B3AAD8&center=true&width=450&height=60&lines=in+my+next+life+%2C%2C;I+wanna+be+me+%2C%2C;and+meet+you+again+.)](https://git.io/typing-svg)
+  
+# $${\color{#ae84c4} sym}$$
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Condensed&pause=1000&color=ac98c8&center=true&width=450&height=60&lines=in+my+next+life+%2C%2C;I+wanna+be+me+-;and+meet+you+again+.)](https://git.io/typing-svg)
+
+<img width="1000" height="200" alt="tumblr_13f1fd54c4ddf4fd1e59ccf9c89003d2_1e6b6aed_640__fliter--cherry-icecream__channel--red__mode--screen" src="https://github.com/user-attachments/assets/5caf007c-b851-4e2e-a828-cc2f0ac14204" />
 </div>
 
 <img align="left" width="500" height="400" alt="2026_02_22_036_Kleki" src="https://github.com/user-attachments/assets/71cfa0b8-3313-4cd7-8b33-af3fdfbac44f" />
@@ -41,6 +44,12 @@ $${\color{#b6bde8} multifandom \space + \space multiship}$$ </p>
 
 </br>
 
+<div align=center>
+
+<img width="1000" height="150" alt="534148528-efed251e-7ff7-4cec-9387-7a1af3e68e11__fliter--cherry-icecream__channel--red__mode--screen" src="https://github.com/user-attachments/assets/6930cd14-d730-47c3-ac33-ad3ce0629bac" />
+
+</div>
+
 
 <img align="right" width="350" height="450" alt="gon" src="https://github.com/user-attachments/assets/59424ca0-2f26-4ee2-ba00-fd37204a76ab" />
 
@@ -71,3 +80,14 @@ $${\color{#ad98c9} 18+ \space and \space -12 }$$ </p>
 </th>
 </tr>
 </table>
+
+<div align=center> 
+</br>
+
+<img width="1000" height="200" alt="tumblr_13f1fd54c4ddf4fd1e59ccf9c89003d2_1e6b6aed_640__fliter--cherry-icecream__channel--red__mode--screen" src="https://github.com/user-attachments/assets/5caf007c-b851-4e2e-a828-cc2f0ac14204" />
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Condensed&pause=1000&color=D1DCF4&center=true&width=450&height=60&lines=gon+%2C+you+are+light;sometimes+%2C+you+shine+so+bright;even+I+must+look+away+.)](https://git.io/typing-svg)
+
+# $${\color{#ae84c4} sym}$$
+
+</div>
