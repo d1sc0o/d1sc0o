@@ -1,5 +1,6 @@
 <div align=center> 
 
+![Static Badge](https://img.shields.io/badge/gon-gon?logo=undertale&logoColor=%23ad98c8&label=killu&labelColor=grey&color=%23e5edf9)
 
   
 # $${\color{#ad6faa} ʚ・ ୨୧・ ɞ}$$
