@@ -18,27 +18,27 @@
 <p> 
   
 ![8H7804z](https://github.com/user-attachments/assets/cec219f7-36ec-440f-9bcb-a7579b08cab1)
-$${\color{#b6bde8} 13-15 \space age \space range}$$ </p>
+$${\color{#b6bde8} ₊˚ ┊ \space 13-15 \space age \space range}$$ </p>
 
 <p> 
   
 ![8H7804z](https://github.com/user-attachments/assets/cec219f7-36ec-440f-9bcb-a7579b08cab1)
-$${\color{#d1dcf4} mentally \space unstable \space}$$ </p>
+$${\color{#d1dcf4} ₊˚ ┊ \space mentally \space unstable \space}$$ </p>
 
 <p> 
   
 ![8H7804z](https://github.com/user-attachments/assets/cec219f7-36ec-440f-9bcb-a7579b08cab1) 
-$${\color{#b6bde8} big \space looey \space kin}$$ </p>
+$${\color{#b6bde8} ₊˚ ┊ \space big \space looey \space kin}$$ </p>
 
 <p> 
   
 ![8H7804z](https://github.com/user-attachments/assets/cec219f7-36ec-440f-9bcb-a7579b08cab1)
-  $${\color{#d1dcf4} they \space / \space them \space pref \space , \space agender}$$ </p>
+  $${\color{#d1dcf4} ₊˚ ┊ \space they \space / \space them \space pref \space , \space agender}$$ </p>
   
 <p> 
   
 ![8H7804z](https://github.com/user-attachments/assets/cec219f7-36ec-440f-9bcb-a7579b08cab1)
-$${\color{#b6bde8} multifandom \space + \space multiship}$$ </p>
+$${\color{#b6bde8} ₊˚ ┊ \space multifandom \space + \space multiship}$$ </p>
 </th>
 </tr>
 </table>
@@ -61,23 +61,29 @@ $${\color{#b6bde8} multifandom \space + \space multiship}$$ </p>
 <p>
   
 ![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/e577d52a-c9b4-4758-8b44-dc63e9ef0747)
-$${\color{#ad98c9} dni \space if \space ...}$$ </p>
+$${\color{#ad98c9} ₊˚ ┊ \space dni \space if \space ...}$$ </p>
 <p>
   
 ![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/e577d52a-c9b4-4758-8b44-dc63e9ef0747)
-$${\color{#ae84c4} heavily \space religious \space}$$ </p>
+$${\color{#ae84c4} ₊˚ ┊ \space heavily \space religious \space}$$ </p>
  <p>
   
 ![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/e577d52a-c9b4-4758-8b44-dc63e9ef0747)
-$${\color{#ad98c9} homophobic, \space transphobic, \space fatphobic, \space etc}$$ </p>
+$${\color{#ad98c9} ₊˚ ┊ \space homophobic, \space transphobic, \space fatphobic, \space etc}$$ </p>
  <p>
   
 ![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/e577d52a-c9b4-4758-8b44-dc63e9ef0747)
-$${\color{#ae84c4} fruitcake \space shippers \space : \space toxic \space shippers}$$ </p>
+$${\color{#ae84c4} ₊˚ ┊ \space fruitcake \space shippers \space : \space toxic \space shippers}$$ </p>
   <p>
   
 ![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/e577d52a-c9b4-4758-8b44-dc63e9ef0747)
-$${\color{#ad98c9} 18+ \space and \space -12 }$$ </p>
+$${\color{#ad98c9} ₊˚ ┊ \space 18+ \space and \space -12 }$$ </p>
+
+ <p>
+  
+![tumblr_d2a83ac092373b78505d511635f20f5d_41bf5fdc_75](https://github.com/user-attachments/assets/e577d52a-c9b4-4758-8b44-dc63e9ef0747)
+$${\color{#ae84c4} ₊˚ ┊ \space roleplay.}$$ </p>
+
 </th>
 </tr>
 </table>
@@ -92,6 +98,7 @@ $${\color{#ad98c9} 18+ \space and \space -12 }$$ </p>
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Condensed&pause=1000&color=D1DCF4&center=true&width=450&height=60&lines=gon+%2C+you+are+light;sometimes+%2C+you+shine+so+bright;even+I+must+look+away+.)](https://git.io/typing-svg)
 
 # $${\color{#b5bde7} ʚ・ ୨୧・ ɞ}$$
+$${\color{#ad6faa} platonic \space killugon \space <3}$$
 
 </div>
 
