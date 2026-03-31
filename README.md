@@ -1,12 +1,10 @@
 <div align=center>
 
-
-
 # $${\color{#b1bea3} . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.}$$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=677B5A&center=true&width=435&lines=%E3%82%9Ball+I+can+hope+%E3%82%9B;%E3%82%9Bis+for+you+to+get+better+%E3%82%9B;%E3%82%9Bcause+all+I+can+take+is+no+more+%E3%82%9B)](https://git.io/typing-svg)
 
-pic
+<img width="600" height="600" alt="2026_03_31_0ta_Kleki__fliter--teal-lightgreen__channel--red__mode--screen" src="https://github.com/user-attachments/assets/2034bc90-ae5e-474d-a91f-dbcf48d5f75a" />
 
 
 $${\color{#b1bea3} . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.}$$
@@ -26,7 +24,8 @@ $${\color{#899977} °˖➴ \space They \space / \space Them \space :: \space age
 
 $${\color{#677b5a} ๋࣭ ⭑ \space fictionkin \space :: \space double \space status \space in \space straw.page \space ˚˖𓍢ִ໋❀ }$$
 
-div
+$${\color{#b1bea3} . ݁₊ ⊹ . ݁˖ . ݁༉‧₊˚.}$$
+
 
 $${\color{#677b5a} ◟♯ . \space links \space ! \space »➝}$$
 
@@ -36,10 +35,8 @@ $${\color{#677b5a} ◟♯ . \space links \space ! \space »➝}$$
 , [![tumblr_9e3f054efb6f82961e65460cb0478aed_0c511a69_75](https://github.com/user-attachments/assets/6239c7c5-61f9-418e-a5ad-62581dcabd94)](https://thehunterpedia.straw.page/)
 , [![tumblr_882a05d44e8f3d08d8c24fd7e5728bfb_97a489f7_75](https://github.com/user-attachments/assets/323e6ca5-0e14-4821-8380-6fb4f134a762)](https://guns.lol/loonytoony)
 
+<img width="197" height="90" alt="2026_03_31_0th_Kleki" src="https://github.com/user-attachments/assets/963b198a-fba0-4aa8-a251-ee1894449c84" />
 
-
-
-div
 
 <details>
 <summary> $${\color{#899977} .✦ ݁˖ \space byi \space !!}$$ </summary>
