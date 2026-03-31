@@ -40,14 +40,40 @@ div
 <details>
 <summary> $${\color{#5f7a2a} - \space byi \space !!}$$ </summary>
 
-
+![sTXj281](https://github.com/user-attachments/assets/30f03ccd-1f6b-439c-9d24-a6bdc001aea0)
+$${\color{#a8b846} ₊˚ ┊ \space 13-15 \space age \space range}$$ </p>
+  
+![sTXj281](https://github.com/user-attachments/assets/30f03ccd-1f6b-439c-9d24-a6bdc001aea0)
+$${\color{#a8b846} ₊˚ ┊ \space mentally \space unstable \space}$$ </p>
+  
+![sTXj281](https://github.com/user-attachments/assets/30f03ccd-1f6b-439c-9d24-a6bdc001aea0)
+$${\color{#a8b846} ₊˚ ┊ \space big \space looey \space kin}$$ </p>
+  
+![sTXj281](https://github.com/user-attachments/assets/30f03ccd-1f6b-439c-9d24-a6bdc001aea0)
+  $${\color{#a8b846} ₊˚ ┊ \space they \space / \space them \space pref \space , \space agender}$$ </p>
+  
+![sTXj281](https://github.com/user-attachments/assets/30f03ccd-1f6b-439c-9d24-a6bdc001aea0)
+$${\color{#a8b846} ₊˚ ┊ \space multifandom \space + \space multiship}$$ </p>
 
 </details>
 
 <details>
 <summary> $${\color{#93a13d} - \space dni \space !!}$$ </summary>
-
-
+  
+![S83DLgq](https://github.com/user-attachments/assets/205d4e1d-4356-417d-ba18-720ac2f0e26a)
+$${\color{#405c28} ₊˚ ┊ \space heavily \space religious \space}$$ 
+  
+![S83DLgq](https://github.com/user-attachments/assets/205d4e1d-4356-417d-ba18-720ac2f0e26a)
+$${\color{#405c28} ₊˚ ┊ \space homophobic, \space transphobic, \space fatphobic, \space etc}$$
+  
+![S83DLgq](https://github.com/user-attachments/assets/205d4e1d-4356-417d-ba18-720ac2f0e26a)
+$${\color{#405c28} ₊˚ ┊ \space fruitcake \space shippers \space : \space toxic \space shippers}$$
+  
+![S83DLgq](https://github.com/user-attachments/assets/205d4e1d-4356-417d-ba18-720ac2f0e26a)
+$${\color{#405c28} ₊˚ ┊ \space 18+ \space and \space -12 }$$
+  
+![S83DLgq](https://github.com/user-attachments/assets/205d4e1d-4356-417d-ba18-720ac2f0e26a)
+$${\color{#405c28} ₊˚ ┊ \space roleplay.}$$
 
 </details>
 
